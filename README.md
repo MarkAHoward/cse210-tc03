@@ -2,6 +2,12 @@
 
 Team Activity 03
 
+##Conner
+I am from the Lincoln California. 
+This is my third semester at BYU-I but my second semester on campus. 
+I like playing and watching basketball.
+Im the youngest of 4 siblings, 2 sister and one brother. 
+
 ###Allison Day
 Hello! My name is Allison Day. I am 18 years old. I am terrible at Monopoly but passable at Ticket-to-Ride. I have a dog named Barry who ate my earbud once. It still hasn't come out.
 
